@@ -1,0 +1,1 @@
+# Left-Side-Star-Pattern-Code-1
